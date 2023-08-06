@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Pweppapig1
 - I don't know jack shit about coding
-- Owner @ zenora cloud https://billing.zenora.cloud/
+- Owner @ DynaCore cloud https://billing.zenora.cloud
 - interested in making a lotta green
